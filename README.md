@@ -1,2 +1,0 @@
-# Sarabia
-Mensajes Gedeones
